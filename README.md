@@ -1,1 +1,1 @@
-Bitgods redme coming soon
+Bitgods readme coming soon
